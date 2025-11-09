@@ -7,3 +7,7 @@ Sea urchin 😁
 Small Land
 
 <img width="1920" height="1080" alt="nauka blendera" src="https://github.com/user-attachments/assets/cd51b209-8bb9-45bb-afeb-31f93b7fe24f" />
+
+Cafe
+
+<img width="1920" height="1080" alt="FINALNY EFEKT" src="https://github.com/user-attachments/assets/07f934a4-9984-4a8e-b42d-a77cdf37ccf3" />
