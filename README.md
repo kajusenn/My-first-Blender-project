@@ -11,3 +11,8 @@ Sea urchin 😁 7.11.2025
 Cafe ☕🏬 8/9.11.2025
 
 <img width="1920" height="1080" alt="FINALNY EFEKT" src="https://github.com/user-attachments/assets/07f934a4-9984-4a8e-b42d-a77cdf37ccf3" />
+
+Gingerbread House [v0.3]🏠🍪 10.11.2025
+
+<img width="1920" height="1080" alt="gingerbread house v0 3" src="https://github.com/user-attachments/assets/b3d6f9ed-9144-44a5-abb9-6c7221cd69c2" />
+
